@@ -5,5 +5,5 @@
   Discord: settle#0880
   Twitter: [szttle](https://twitter.com/szttle)
   }
-- 😄 Pronouns: he/this
+- 😄 Pronouns: he/her
 - ⚡ Fun fact: I code...
